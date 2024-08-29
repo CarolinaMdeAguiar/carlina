@@ -7,4 +7,6 @@ Meu nome é Carolina Martins
 ### Você pode entrar em contato comigo 📫
 00001094266814SP@al.educacao.sp.gov.br
 
-@alurastartestudante
+@CarolinaMdeAguiar
+
+![](https://tenor.com/pt-BR/view/fantasy-horse-unicorn-gif-11296592)
